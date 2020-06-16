@@ -20,3 +20,6 @@ Responding on that, a small programming dwarf appeared, shitting on the shoulder
 The giant kneeled so the dwarf could jump off and showed off his code.
 "What is all that about", the man asked the dward.
 
+Then the little pink bunny said in a thick low voice,
+if you want to know all the secrets of coding, follow me.
+And disappeared into the sewer.
