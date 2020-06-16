@@ -17,3 +17,8 @@ _After which he did not wait for answers from the man but asked 3 questions hims
 1. Can you smell your heart now?
 2. Lick me?
 3. What's a line of code?
+
+Responding on that, a small programming dwarf appeared, shitting on the shoulders of a giant.
+The giant kneeled so the dwarf could jump off and showed off his code.
+"What is all that about", the man asked the dward.
+
