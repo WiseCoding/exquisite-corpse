@@ -10,12 +10,16 @@ The man was disgusted with the smell that emerged and said, go wash yourself fir
 _While the corpse grasped for carbon dioxide, he reached for his head as if he was thinking_
 _**Then he frantically started cleaning himself with his spit and drool**_
 _After which he did not wait for answers from the man but asked 3 questions himself:_
-
-
 1. Can you smell your heart now?
 2. Lick me?
 3. What's a line of code?
 
+
 Responding on that, a small programming dwarf appeared, shitting on the shoulders of a giant.
 The giant kneeled so the dwarf could jump off and showed off his code.
-"What is all that about", the man asked the dwarf.
+"What is all that about", the man asked the dward.
+
+
+Then the little pink bunny said in a thick low voice,
+if you want to know all the secrets of coding, follow me.
+And disappeared into the sewer.
